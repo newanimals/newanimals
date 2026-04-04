@@ -1,5 +1,3 @@
 REDOING . 
 
-![7d9af1f161eb050e10484e4b06a2da7c](https://github.com/user-attachments/assets/f7c1c7f2-b3b3-487e-a575-81ff5e93ee2c)
-
-placeholder :-) 
+<img width="736" height="552" alt="Untitled2089_20260403205251" src="https://github.com/user-attachments/assets/e3d46696-f500-4795-b7e4-ea1bab61967a" />
