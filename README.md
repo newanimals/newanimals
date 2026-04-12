@@ -3,7 +3,9 @@
 
 
 
-> please follow my main i wanna hit 100-200 followers or even more :)!  https://dnifyoucopyskins.straw.page/ LOOK AT THIS IT IS IMPORTANT.
+> please follow my main i wanna hit 100-200 followers or even more :)!
+> [READ THIS PLEASE!](https://dnifyoucopyskins.straw.page/)
+> LOOK AT THIS IT IS IMPORTANT.
 
 ---
   
