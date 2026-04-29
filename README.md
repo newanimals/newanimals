@@ -1,3 +1,6 @@
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=newanimals&label=members%20&color=ffc0cb&style=flat" alt="newanimals" 
+  / >
+ 
 
 
 
